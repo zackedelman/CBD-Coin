@@ -1,1 +1,1 @@
-CBD Coin Will Revolutionize the CBD Commerce World.
+CBD Coin, created for CBD eCommerce Use.
